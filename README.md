@@ -1,1 +1,6 @@
 # Training
+
+Haha~
+
+XXXXXXX
+YYYYYYYY
